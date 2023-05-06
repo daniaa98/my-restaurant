@@ -25,3 +25,28 @@
 
 - ### Sheshbarak
 <img src="https://static.webteb.net/images/content/ramadanrecipe_recipe_167_448.jpg" alt="" width="80%" height="80%"/>
+
+## DESSERT :
+- ### Konafa
+<img src="https://modo3.com/thumbs/fit630x300/25469/1442304789/%D8%B7%D8%B1%D9%8A%D9%82%D8%A9_%D8%B9%D9%85%D9%84_%D8%A7%D9%84%D9%83%D9%86%D8%A7%D9%81%D8%A9.jpg" alt="" width="80%" height="80%"/>
+
+- ### Layale lebnan
+<img src="https://i.ytimg.com/vi/TEFWHpE82QU/maxresdefault.jpg" alt="" width="80%" height="80%"/>
+
+- ### Basbosa
+<img src="https://www.atyabtabkha.com/uploads/sites/2/2021/10/732b0813c74b30724891e4a5e676bbab722bec71.jpg" alt="" width="80%" height="80%"/>
+
+## DRINK :
+
+- ### Shanena
+- ### Oranje juice
+- ### Water
+- ### Pepsi
+
+
+
+<br>contact us on :
+
+<img src="https://www.iconsdb.com/icons/preview/white/instagram-xxl.png" alt="Instagram Icon" width="5%" height="5%"/> https://instagram.com/dania.arq?igshid=ZDdkNTZiNTM=
+
+<img src="https://www.iconsdb.com/icons/preview/guacamole-green/phone-28-xxl.png" alt="Instagram Icon" width="5%" height="5%"/> 0799999999
