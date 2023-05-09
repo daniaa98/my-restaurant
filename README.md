@@ -47,13 +47,15 @@
 
 <br>contact us on :
 
-<img src="https://www.iconsdb.com/icons/preview/white/instagram-xxl.png" alt="Instagram Icon" width="5%" height="5%"/> https://instagram.com/dania.arq?igshid=ZDdkNTZiNTM=
+![](https://live.staticflickr.com/65535/52883535700_c750e7d4e8_m.jpg)
+ https://instagram.com/dania.arq?igshid=ZDdkNTZiNTM=
 
-<img src="https://www.iconsdb.com/icons/preview/guacamole-green/phone-28-xxl.png" alt="Instagram Icon" width="5%" height="5%"/> 0799999999
 
+
+![](https://live.staticflickr.com/65535/52883611678_71b880dc41_m.jpg)  0799999999
 
 
 
 wireframe
 
-<img src="https://live.staticflickr.com/65535/52882367013_15a25c9b18_m.jpg" alt="Instagram Icon" width="50%" height="50%"/>
+ ![](https://live.staticflickr.com/65535/52882367013_15a25c9b18_m.jpg)
